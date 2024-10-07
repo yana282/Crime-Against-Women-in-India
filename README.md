@@ -8,5 +8,4 @@ being. Desipte various legal frameworks and
  continues to be alarmingly high. These issues
  affecting millions of women globally. The
  complexity of this issue's further compounded
- by underreporting, social stigmas, and the ineffi
- cency of preventive measures.
+ by underreporting, social stigmas, and the inefficency of preventive measures.
