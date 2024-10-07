@@ -1,12 +1,12 @@
 # Crime-Against-Women-in-India
- Crme aganst women, ncludng domestc
- volence, sexual harassment and assault ,
- reman pervasve ssues worldwde, affectng
+ Crime against women, includng domestic
+ volience, sexual harassment and assault ,
+ remain pervasive issues worldwide, affecting
  women’s safety, dowry death and overall well
-beng. Despte varous legal frameworks and
- socetal efforts, the ncdence of these crmes
- contnues to be alarmngly hgh. These ssues
- affectng mllons of women globally. The
- complexty of ths ssue s further compounded
- by underreportng, socal stgmas, and the ne
- cency of preventve measures.
+being. Desipte various legal frameworks and
+ societal efforts, the incdence of these crimes
+ continues to be alarmingly high. These issues
+ affecting millions of women globally. The
+ complexity of this issue's further compounded
+ by underreporting, social stigmas, and the ineffi
+ cency of preventive measures.
