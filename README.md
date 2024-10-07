@@ -4,7 +4,7 @@
  remain pervasive issues worldwide, affecting
  women’s safety, dowry death and overall well
 being. Desipte various legal frameworks and
- societal efforts, the incdence of these crimes
+ societal efforts, the incidence of these crimes
  continues to be alarmingly high. These issues
  affecting millions of women globally. The
  complexity of this issue's further compounded
